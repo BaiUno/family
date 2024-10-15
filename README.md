@@ -1,1 +1,1 @@
-Whose family name is white can come and add his link here.
+Whose family name is White can come and add a link here.
